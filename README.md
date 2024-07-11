@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rajanchand
-- 👀 I’m interested in ...
+- 👀 I’m interested in hicking, Riding bike, Travelling,Drinking Tea
 - 🌱 I’m currently learning  DevOps at Techaxis
 - 💞️ I’m looking to collaborate on ...
 - 📫 You can reached me through email or contact number
